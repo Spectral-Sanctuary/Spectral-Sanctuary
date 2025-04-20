@@ -3,7 +3,7 @@
 ![Image](https://github.com/user-attachments/assets/a389ba07-358c-4713-9537-4aa9fe9b347d)
 
 <div align="center">
-  ⌞ Caution: People under 12 years old are **strongly recommended** not to interact with me. I tend to bring up suggestive topics and impolite language. Please recognize the DNI criteria. (￢_￢;) ⌝
+  ⌞ Caution: People under 12 years old are STRONGLY RECOMMENDED not to interact with me. I tend to bring up suggestive topics and impolite language. Please recognize the DNI criteria. (￢_￢;) ⌝
 </div>
 
 
