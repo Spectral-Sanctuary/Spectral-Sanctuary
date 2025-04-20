@@ -1,7 +1,7 @@
 ![Image](https://github.com/user-attachments/assets/2e6d2de3-aac6-42fd-91f7-69e38f85592b)
 ╰┈➤ Hihihihihi... I'm Clay!
 
-⌞ Caution: People under 12 years old are **strongly recommended** not to interact with me. I tend to bring up suggestive topics. Anyone being a weirdo or making me uncomfortable will be blocked freely. (￢_￢;) ⌝
+⌞ Caution: People under 12 years old are **strongly recommended** not to interact with me. I tend to bring up suggestive topics and impolite language. Anyone being a weirdo or making me uncomfortable will be blocked freely. (￢_￢;) ⌝
 
 ⌯' ⇵ . You may look through the social links to explore more about me. :D . ᶻz >>
 
