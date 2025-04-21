@@ -1,5 +1,3 @@
-![Image](https://github.com/user-attachments/assets/e07a616a-252f-4c56-9643-0eeb3c49420c)
-
 ![Image](https://github.com/user-attachments/assets/2e6d2de3-aac6-42fd-91f7-69e38f85592b)">
 ╰┈➤ Hihihihihi... I'm Clay! 𖦹
 ![Image](https://github.com/user-attachments/assets/a389ba07-358c-4713-9537-4aa9fe9b347d)
@@ -29,6 +27,3 @@
   ![Image](https://github.com/user-attachments/assets/d3d8fa15-8eb7-463b-aed3-2d4aad396b8a)
   ![Image](https://github.com/user-attachments/assets/86c0f606-d5a2-43a4-9638-7726cb910033)
   ![Image](https://github.com/user-attachments/assets/0bee533e-1585-4eb3-989e-89fac9bf9cb6)
-
-  ![Image](https://github.com/user-attachments/assets/e07a616a-252f-4c56-9643-0eeb3c49420c)
-  ![Image](https://github.com/user-attachments/assets/e07a616a-252f-4c56-9643-0eeb3c49420c)
