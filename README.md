@@ -1,5 +1,4 @@
 ![Image](https://github.com/user-attachments/assets/e07a616a-252f-4c56-9643-0eeb3c49420c)
-![Image](https://github.com/user-attachments/assets/e07a616a-252f-4c56-9643-0eeb3c49420c)
 
 ![Image](https://github.com/user-attachments/assets/2e6d2de3-aac6-42fd-91f7-69e38f85592b)">
 ╰┈➤ Hihihihihi... I'm Clay! 𖦹
