@@ -18,7 +18,7 @@
 </div>
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ". ![](https://komarev.com/ghpvc/?username=Spectral-Sanctuary&labelColor=000000&label=Stalkers...+/j&color=150df7&style=for-the-badge) ."
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ". ![](https://komarev.com/ghpvc/?username=Spectral-Sanctuary&labelColor=000000&label=Stalkers...+/j&color=150df7&style=for-the-badge) ."
 
 
   ㅤㅤㅤ![Image](https://github.com/user-attachments/assets/a8427a96-2498-4f1b-801d-b092c64b75fc)
