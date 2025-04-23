@@ -3,7 +3,7 @@
 ![Image](https://github.com/user-attachments/assets/a389ba07-358c-4713-9537-4aa9fe9b347d)
 
 <div align="center">
-  ⌞ Caution: People under 12 years old are STRONGLY RECOMMENDED not to interact with me. I tend to bring up suggestive topics and impolite language. Although I'm a minor, I mostly come out being rude. Please recognize the DNI criteria. (￢_￢;) ⌝
+  ⌞   Caution: People under 12 years old are STRONGLY RECOMMENDED not to interact with me. I tend to bring up suggestive topics and impolite language. Although I'm a minor, I mostly come out being rude. Please recognize the DNI criteria. (￢_￢;)   ⌝
 </div>
 
 
@@ -14,11 +14,11 @@
 
 
 <div align="center">
-  ⌯' ⇵ . You may look through the social links to explore more about me. :D . ᶻz >>
+  ⌯' ⇵ .   You may look through the social links to explore more about me. :D   . ᶻz >>
 </div>
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ". ![](https://komarev.com/ghpvc/?username=Spectral-Sanctuary&labelColor=000000&label=Stalkers...+/j&color=150df7&style=for-the-badge) ."
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ".   ![](https://komarev.com/ghpvc/?username=Spectral-Sanctuary&labelColor=000000&label=Stalkers...+/j&color=150df7&style=for-the-badge)  ."
 
 
   ㅤㅤㅤ![Image](https://github.com/user-attachments/assets/a8427a96-2498-4f1b-801d-b092c64b75fc)
