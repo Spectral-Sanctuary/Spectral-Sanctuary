@@ -7,7 +7,7 @@
 
 
 <img 
-src="https://i.gifer.com/3P6H.gif" width="1200" height="380" alt="my mood rn or just what I am">
+src="https://i.gifer.com/3P6H.gif" width="1200" height="330" alt="my mood rn or just what I am">
 
 <div align="center">
   <img src="https://img1.picmix.com/output/stamp/normal/7/6/8/7/2437867_7626d.gif" width="200" height="30" alt="my identitytytty"> &nbsp; &nbsp; <img src="https://img1.picmix.com/output/stamp/normal/3/0/9/2/2552903_26659.gif" width="200" height="30" alt="my sexualitytytyty"> &nbsp; &nbsp; <img src="https://img1.picmix.com/output/stamp/normal/0/0/9/2/2552900_eed3e.gif" width="200" height="30" alt="my relationship terms and conditions slash jjjj">
