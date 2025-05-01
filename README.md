@@ -17,13 +17,14 @@ src="https://i.pinimg.com/originals/0f/9d/cf/0f9dcf2e86b611f5e8d9c42446a5dd18.gi
 
 
 <br>
-<br>
 
-
-<div align="center">
-  <img src="https://img1.picmix.com/output/stamp/normal/4/0/3/1/2441304_ea3ae.gif" width="500" height="25" alt="bru">
-</div>
 
 <div align="center">
   ₊⊹ &nbsp; ,,ྀི 𝔊𝔬 𝔥𝔬𝔪𝔢 𝔞𝔫𝔡 𝔱𝔞𝔨𝔢 𝔞 𝔯𝔢𝔰𝔱. ,, &nbsp; 𝄞
+</div>
+
+<br>
+
+<div align="center">
+  <img src="https://img1.picmix.com/output/stamp/normal/4/0/3/1/2441304_ea3ae.gif" width="500" height="25" alt="bru">
 </div>
