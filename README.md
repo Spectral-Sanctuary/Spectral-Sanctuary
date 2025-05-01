@@ -4,6 +4,8 @@
 
 <br>
 <br>
+<br>
+
 
 <img 
 src="https://i.pinimg.com/originals/0f/9d/cf/0f9dcf2e86b611f5e8d9c42446a5dd18.gif" width="1500" height="390" alt="my mood rn or just what I am">
@@ -14,6 +16,7 @@ src="https://i.pinimg.com/originals/0f/9d/cf/0f9dcf2e86b611f5e8d9c42446a5dd18.gi
 </div>
 
 
+<br>
 <br>
 <br>
 
