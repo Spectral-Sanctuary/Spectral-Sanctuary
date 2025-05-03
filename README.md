@@ -5,7 +5,6 @@
 <br>
 <br>
 
-
 <img 
 src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or just what I am">
 
@@ -48,6 +47,9 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 <br>
 <br>
 
+<img 
+src="https://gifs.cackhanded.net/ghostbusters/backing-away.gif" width="1200" height="500" alt="oh my goodness gracious">
 <div align="center">
+
   <img src="https://img1.picmix.com/output/stamp/normal/4/0/3/1/2441304_ea3ae.gif" width="520" height="25" alt="bru">
 </div>
