@@ -24,10 +24,19 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
   ✦ Some might say - Oasis ✦
 </div>
 
+
 <br>
 
 <div align="center">
   (づ๑•ᴗ•๑)づ♡
+</div>
+
+<br>
+
+<div align="center">
+  <a href="https://github.com/Spectral-Sanctuary">
+    <img src="https://komarev.com/ghpvc/?username=Spectral-Sanctuary&label=Detected+anomalies+and+ghosts&color=2be0b6" alt="Nah bruh I ain't busting y'all that much">
+  </a>
 </div>
 
 <br>
