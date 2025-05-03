@@ -35,7 +35,7 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 
 <div align="center">
   <a href="https://github.com/Spectral-Sanctuary">
-    <img src="https://komarev.com/ghpvc/?username=Spectral-Sanctuary&label=Detected+anomalies+and+ghosts&color=2be0b6" alt="Nah bruh I ain't busting y'all that much">
+    <img src="https://komarev.com/ghpvc/?username=Spectral-Sanctuary&label=Detected+anomalies+and+ghosts&color=269675" alt="Nah bruh I ain't busting y'all that much">
   </a>
 </div>
 
