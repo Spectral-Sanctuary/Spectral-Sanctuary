@@ -10,7 +10,13 @@
 src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or just what I am">
 
 <div align="center">
-  <img src="https://img1.picmix.com/output/stamp/normal/7/6/8/7/2437867_7626d.gif" width="200" height="30" alt="my identitytytty"> &nbsp; &nbsp; <img src="https://img1.picmix.com/output/stamp/normal/3/0/9/2/2552903_26659.gif" width="200" height="30" alt="my sexualitytytyty"> &nbsp; &nbsp; <img src="https://img1.picmix.com/output/stamp/normal/0/0/9/2/2552900_eed3e.gif" width="200" height="30" alt="my relationship terms and conditions slash jjjj">
+  <img src="https://img1.picmix.com/output/stamp/normal/2/9/3/7/2537392_0ede8.gif" width="200" height="30" alt="my identitytytty">
+</div>
+
+<br>
+
+<div align="center">
+  <img src="https://img1.picmix.com/output/stamp/normal/2/9/0/9/2369092_c285f.gif" width="150" height="130" alt="heeuaaAAGGGGHGHHGHGHH">
 </div>
 
 <br>
@@ -35,7 +41,7 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 
 <div align="center">
   <a href="https://github.com/Spectral-Sanctuary">
-    <img src="https://komarev.com/ghpvc/?username=Spectral-Sanctuary&label=Detected+anomalies+and+ghosts&color=269675" alt="Nah bruh I ain't busting y'all that much">
+    <img src="https://komarev.com/ghpvc/?username=Spectral-Sanctuary&label=Detected+ghosts+in+town...&color=b52424" alt="Nah bruh I ain't busting y'all that much">
   </a>
 </div>
 
