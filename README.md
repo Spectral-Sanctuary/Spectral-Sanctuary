@@ -9,10 +9,8 @@
 src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or just what I am">
 
 <div align="center">
-  <img src="https://img1.picmix.com/output/stamp/normal/2/9/3/7/2537392_0ede8.gif" width="200" height="30" alt="my identitytytty">
+  <img src="https://img1.picmix.com/output/stamp/normal/2/9/3/7/2537392_0ede8.gif" width="200" height="30" alt="when you backflip">
 </div>
-
-<br>
 
 <div align="center">
   <img src="https://img1.picmix.com/output/stamp/normal/2/9/0/9/2369092_c285f.gif" width="150" height="130" alt="heeuaaAAGGGGHGHHGHGHH">
@@ -48,7 +46,7 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 <br>
 
 <img 
-src="https://gifs.cackhanded.net/ghostbusters/backing-away.gif" width="1200" height="500" alt="oh my goodness gracious">
+src="https://gifs.cackhanded.net/ghostbusters/backing-away.gif" width="1200" height="475" alt="oh my goodness gracious">
 <div align="center">
 
   <img src="https://img1.picmix.com/output/stamp/normal/4/0/3/1/2441304_ea3ae.gif" width="520" height="25" alt="bru">
