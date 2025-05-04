@@ -45,9 +45,13 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 <br>
 <br>
 
-<img 
-src="https://gifs.cackhanded.net/ghostbusters/backing-away.gif" width="1200" height="475" alt="oh my goodness gracious">
 <div align="center">
+  <img src="https://i.pinimg.com/originals/0d/fa/3e/0dfa3ee0dd11b60cc584c376558687a2.gif" width="475" height="475" alt="heeuaaAAGGGGHGHHGHGHH">
+</div>
+<div align="center">
+
+<br>
+<br>
 
   <img src="https://img1.picmix.com/output/stamp/normal/4/0/3/1/2441304_ea3ae.gif" width="520" height="25" alt="bru">
 </div>
