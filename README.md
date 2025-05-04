@@ -43,7 +43,6 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 </div>
 
 <br>
-<br>
 
 <div align="center">
   <img src="https://i.pinimg.com/originals/0d/fa/3e/0dfa3ee0dd11b60cc584c376558687a2.gif" width="475" height="475" alt="heeuaaAAGGGGHGHHGHGHH">
