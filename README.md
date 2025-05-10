@@ -56,6 +56,11 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 
 <div align="center">
   ◭ &nbsp; 𖹭 My favorite GIF because I love them, too. 𖹭 &nbsp; ◮
+</div>
+
+<div align="center">
+  (,,> ᴗ <,,)
+</div>
   
 <br>
 <br>
