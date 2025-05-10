@@ -17,7 +17,7 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 <br>
 
 <div align="center">
-  <img src="https://img1.picmix.com/output/stamp/normal/6/3/9/7/1697936_c644a.gif" width="250" height="190" alt="heeuaaAAGGGGHGHHGHGHH">
+  <img src="https://img1.picmix.com/output/stamp/normal/6/3/9/7/1697936_c644a.gif" width="350" height="330" alt="heeuaaAAGGGGHGHHGHGHH">
 </div>
 
 <br>
