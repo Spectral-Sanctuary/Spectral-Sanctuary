@@ -17,7 +17,7 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 <br>
 
 <div align="center">
-  <img src="https://img1.picmix.com/output/stamp/normal/6/3/9/7/1697936_c644a.gif" width="350" height="330" alt="heeuaaAAGGGGHGHHGHGHH">
+  <img src="https://github.com/user-attachments/assets/987a7d26-f071-4b57-ab12-7079dff984ca" width="350" height="330" alt="heeuaaAAGGGGHGHHGHGHH">
 </div>
 
 <br>
@@ -26,7 +26,7 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 
 <div align="center">
   ᯓᡣ𐭩 &nbsp; &nbsp;  ,,ྀི⤿ &nbsp; 
-𝔖𝔬𝔪𝔢 𝔪𝔦𝔤𝔥𝔱 𝔰𝔞𝔶 𝔱𝔥𝔢𝔶 𝔡𝔬𝔫'𝔱 𝔟𝔢𝔩𝔦𝔢𝔳𝔢 𝔦𝔫 𝔥𝔢𝔞𝔳𝔢𝔫. 𝔊𝔬 𝔞𝔫𝔡 𝔱𝔢𝔩𝔩 𝔦𝔱 𝔱𝔬 𝔱𝔥𝔢 𝔪𝔞𝔫 𝔴𝔥𝔬 𝔩𝔦𝔳𝔢𝔰 𝔦𝔫 𝔥𝔢𝔩𝔩. &nbsp; ༄.°,,  &nbsp; &nbsp; 𝄞
+ℑ 𝔱𝔯𝔦𝔢𝔡 𝔱𝔬 𝔱𝔞𝔩𝔨 𝔴𝔦𝔱𝔥 𝔊𝔬𝔡 𝔱𝔬 𝔫𝔬 𝔞𝔳𝔞𝔦𝔩. ℑ 𝔠𝔞𝔩𝔩𝔢𝔡 𝔥𝔦𝔪 𝔲𝔭 𝔦𝔫-𝔞𝔫𝔡-𝔬𝔲𝔱 𝔬𝔣 𝔫𝔬𝔴𝔥𝔢𝔯𝔢, ℑ 𝔰𝔞𝔦𝔡, "ℑ𝔣 𝔶𝔬𝔲 𝔴𝔬𝔫'𝔱 𝔰𝔞𝔳𝔢 𝔪𝔢, 𝔭𝔩𝔢𝔞𝔰𝔢 𝔡𝔬𝔫'𝔱 𝔴𝔞𝔰𝔱𝔢 𝔪𝔶 𝔱𝔦𝔪𝔢." &nbsp; ༄.°,,  &nbsp; &nbsp; 𝄞
 </div>
 
 <div align="center">
