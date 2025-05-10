@@ -12,10 +12,14 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
   <img src="https://img1.picmix.com/output/stamp/normal/2/9/3/7/2537392_0ede8.gif" width="200" height="30" alt="when you backflip">
 </div>
 
+<br>
+<br>
+
 <div align="center">
-  <img src="https://img1.picmix.com/output/stamp/normal/2/9/0/9/2369092_c285f.gif" width="150" height="130" alt="heeuaaAAGGGGHGHHGHGHH">
+  <img src="https://img1.picmix.com/output/stamp/normal/5/8/9/6/1726985_c6559.gif" width="190" height="150" alt="heeuaaAAGGGGHGHHGHGHH">
 </div>
 
+<br>
 <br>
 
 <div align="center">
