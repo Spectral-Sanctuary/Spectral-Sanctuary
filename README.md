@@ -14,11 +14,13 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 
 <br>
 <br>
+<br>
 
 <div align="center">
-  <img src="https://img1.picmix.com/output/stamp/normal/5/8/9/6/1726985_c6559.gif" width="190" height="150" alt="heeuaaAAGGGGHGHHGHGHH">
+  <img src="https://img1.picmix.com/output/stamp/normal/5/8/9/6/1726985_c6559.gif" width="250" height="190" alt="heeuaaAAGGGGHGHHGHGHH">
 </div>
 
+<br>
 <br>
 <br>
 
@@ -42,7 +44,7 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 
 <div align="center">
   <a href="https://github.com/Spectral-Sanctuary">
-    <img src="https://komarev.com/ghpvc/?username=Spectral-Sanctuary&label=Detected+ghosts+in+town...&color=b52424" alt="Nah bruh I ain't busting y'all that much">
+    <img src="https://komarev.com/ghpvc/?username=Spectral-Sanctuary&label=Detected+ghosts+in+town...&color=b52424" alt="Skibidi ohio in the rizzler">
   </a>
 </div>
 
