@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://img1.picmix.com/output/stamp/normal/4/0/3/1/2441304_ea3ae.gif" width="520" height="25" alt="skibidi ohio">
+  <img src="https://img1.picmix.com/output/stamp/normal/7/6/1/0/2500167_58257.gif" width="1400" height="30" alt="skibidi ohio">
 </div>
 
 <br>
@@ -17,7 +17,7 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 <br>
 
 <div align="center">
-  <img src="https://img1.picmix.com/output/stamp/normal/5/8/9/6/1726985_c6559.gif" width="250" height="190" alt="heeuaaAAGGGGHGHHGHGHH">
+  <img src="https://img1.picmix.com/output/stamp/normal/6/3/9/7/1697936_c644a.gif" width="250" height="190" alt="heeuaaAAGGGGHGHHGHGHH">
 </div>
 
 <br>
@@ -58,5 +58,6 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 <br>
 <br>
 
-  <img src="https://img1.picmix.com/output/stamp/normal/4/0/3/1/2441304_ea3ae.gif" width="520" height="25" alt="bru">
+<div align="center">
+  <img src="https://img1.picmix.com/output/stamp/normal/7/6/1/0/2500167_58257.gif" width="1400" height="30" alt="skibidi ohio">
 </div>
