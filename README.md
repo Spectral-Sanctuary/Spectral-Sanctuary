@@ -57,6 +57,8 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 <br>
 <br>
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tckfmsmy7m3qsgkook6hwjqqne&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&bar_color=ce2222&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31tckfmsmy7m3qsgkook6hwjqqne&redirect=true)
+
 <div align="center">
   <img src="https://img1.picmix.com/output/stamp/normal/7/6/1/0/2500167_58257.gif" width="1400" height="30" alt="skibidi ohio">
 </div>
