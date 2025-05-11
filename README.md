@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://img1.picmix.com/output/stamp/normal/7/6/1/0/2500167_58257.gif" width="1400" height="30" alt="skibidi ohio">
+  <img src="https://img1.picmix.com/output/stamp/normal/7/6/1/0/2500167_58257.gif" width="1400" height="25" alt="skibidi ohio">
 </div>
 
 <br>
