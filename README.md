@@ -32,6 +32,16 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
   ✦ Falling down - Oasis ✦
 </div>
 
+<br>
+
+<div align="center">
+════════ ❁ ════════ 
+
+Hello! Thanks for reading this README.
+
+You may sign me something nice in my Atabook and Strawpage! I appreciate it. Plus, I may respond to your messages quickly because I'm curious about what people think about me.
+════════ ❁ ════════ 
+</div>
 
 <br>
 
@@ -52,7 +62,6 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 <div align="center">
   <img src="https://i.pinimg.com/originals/0d/fa/3e/0dfa3ee0dd11b60cc584c376558687a2.gif" width="475" height="475" alt="heeuaaAAGGGGHGHHGHGHH">
 </div>
-<div align="center">
 
 <div align="center">
   ◭ &nbsp; 𖹭 My favorite GIF because I love them the most. 𖹭 &nbsp; ◮
@@ -61,7 +70,13 @@ src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or 
 <div align="center">
   (,,> ᴗ <,,)
 </div>
-  
+
+<br>
+
+<div align="center">
+════════ ❁ ════════ 
+</div>
+
 <br>
 <br>
 
