@@ -5,8 +5,9 @@
 <br>
 <br>
 
-<img 
-src="https://i.gifer.com/18NY.gif" width="1000" height="400" alt="my mood rn or just what I am">
+<div align="center">
+  <img src="https://i.gifer.com/18NY.gif" width="900" height="350" alt="my mood rn or just what I am">
+</div>
 
 <div align="center">
   <img src="https://img1.picmix.com/output/stamp/normal/2/9/3/7/2537392_0ede8.gif" width="200" height="30" alt="when you backflip">
