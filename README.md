@@ -29,7 +29,7 @@ src="https://i.gifer.com/18NY.gif" width="1000" height="400" alt="my mood rn or 
 </div>
 
 <div align="center">
-  ✦ Falling down - Oasis ✦
+  ✦ Oasis - Falling down ✦
 </div>
 
 <br>
