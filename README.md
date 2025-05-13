@@ -6,7 +6,7 @@
 <br>
 
 <img 
-src="https://i.gifer.com/3P6H.gif" width="1200" height="400" alt="my mood rn or just what I am">
+src="https://64.media.tumblr.com/d015d87702cc4ac9b8b39e433a0b8687/a9788d9382cc1598-3f/s540x810/859740b8dd787881efb8f275d5835dfb22722cf6.gifv" width="1200" height="400" alt="my mood rn or just what I am">
 
 <div align="center">
   <img src="https://img1.picmix.com/output/stamp/normal/2/9/3/7/2537392_0ede8.gif" width="200" height="30" alt="when you backflip">
