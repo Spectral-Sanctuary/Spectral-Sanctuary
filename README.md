@@ -39,7 +39,7 @@
 ════════ ❁ ════════
 
 
-One thing I should confess is that I have several bad morals I have provide to most people in my life. If anything rather than me, I sincerely apologize for all the bad things I ever did. When will I ever get to make you delighted?
+One thing I should confess is that I have several bad morals provided to most people in my life. If anything rather than me, I sincerely apologize for all the bad things I ever did. When will I ever get to make you delighted?
 
 ════════ ❁ ════════ 
 </div>
