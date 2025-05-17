@@ -38,9 +38,7 @@
 <div align="center">
 ════════ ❁ ════════ 
 
-Everyone is special, everyone must fulfill themselves. You can't complete yourself if you don't seek anyone's help or guidance. Remember that you are loved, you're special, and you're amazing. If you're having a bad day, your problems won't strike you hard, and your reputation won't be dreadful. I wish you all joy and peace <3
-
-Also, check out my Strawpage if you want to know about me! And you may sign me something nice in my Atabook—I will try to respond to your messages quickly because I'm curious about what people think about me.
+One thing I should confess is that I have several bad morals I have provide to most people in my life. If anything rather than me, I sincerely apologize for all the bad things I ever did. When will I ever get to make you delighted?
 
 ════════ ❁ ════════ 
 </div>
@@ -48,7 +46,7 @@ Also, check out my Strawpage if you want to know about me! And you may sign me s
 <br>
 
 <div align="center">
-  (づ๑•ᴗ•๑)づ♡
+  o(╥﹏╥)o
 </div>
 
 <br>
