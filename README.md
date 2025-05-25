@@ -21,7 +21,6 @@
 </div>
 
 <br>
-<br>
 
 <div align="center">
   <img src="https://github.com/user-attachments/assets/3ffcaad9-1b91-4f12-8685-d9c179b1a9cf" width="300" height="40" alt="me and who and me and who me and dies">&nbsp;<img src="https://github.com/user-attachments/assets/3ffcaad9-1b91-4f12-8685-d9c179b1a9cf" width="300" height="40" alt="me and who and me and who me and dies">
