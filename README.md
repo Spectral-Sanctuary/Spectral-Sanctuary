@@ -5,7 +5,7 @@
 
 <div align="center">
   <a href="https://github.com/Spectral-Sanctuary">
-    <img src="https://komarev.com/ghpvc/?username=Spectral-Sanctuary&label=Best+agents...&color=c99524" alt="Skibidi ohio in the rizzler">
+    <img src="https://komarev.com/ghpvc/?username=Spectral-Sanctuary&label=Best+agents+and+spies...&color=c99524" alt="Skibidi ohio in the rizzler">
   </a>
 </div>
 
