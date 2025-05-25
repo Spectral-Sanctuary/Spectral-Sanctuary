@@ -1,6 +1,5 @@
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/3ffcaad9-1b91-4f12-8685-d9c179b1a9cf" width="300" height="40" alt="me and who and me and who me and dies">&nbsp;<img src="https://github.com/user-attachments/assets/3ffcaad9-1b91-4f12-8685-d9c179b1a9cf" width="300" height="40" alt="me and who and me and who me and dies">&nbsp;<img src="https://github.com/user-attachments/assets/3ffcaad9-1b91-4f12-8685-d9c179b1a9cf" width="300" height="40" alt="me and who and me and who me and dies">
-
+  <img src="https://github.com/user-attachments/assets/3ffcaad9-1b91-4f12-8685-d9c179b1a9cf" width="300" height="40" alt="me and who and me and who me and dies">&nbsp;<img src="https://github.com/user-attachments/assets/3ffcaad9-1b91-4f12-8685-d9c179b1a9cf" width="300" height="40" alt="me and who and me and who me and dies">
 <br>
 <br>
 
@@ -12,7 +11,7 @@
 
 </div>
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/ff07a5f7-8482-404d-a5b6-657a3e2cef25" width="1000" height="400" alt="me and who and me and who me and dies">
+  <img src="https://github.com/user-attachments/assets/ff07a5f7-8482-404d-a5b6-657a3e2cef25" width="1000" height="360" alt="me and who and me and who me and dies">
 </div>
 
 <div align="center">
@@ -25,5 +24,5 @@
 <br>
 
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/3ffcaad9-1b91-4f12-8685-d9c179b1a9cf" width="300" height="40" alt="me and who and me and who me and dies">&nbsp;<img src="https://github.com/user-attachments/assets/3ffcaad9-1b91-4f12-8685-d9c179b1a9cf" width="300" height="40" alt="me and who and me and who me and dies">&nbsp;<img src="https://github.com/user-attachments/assets/3ffcaad9-1b91-4f12-8685-d9c179b1a9cf" width="300" height="40" alt="me and who and me and who me and dies">
+  <img src="https://github.com/user-attachments/assets/3ffcaad9-1b91-4f12-8685-d9c179b1a9cf" width="300" height="40" alt="me and who and me and who me and dies">&nbsp;<img src="https://github.com/user-attachments/assets/3ffcaad9-1b91-4f12-8685-d9c179b1a9cf" width="300" height="40" alt="me and who and me and who me and dies">
 </div>
